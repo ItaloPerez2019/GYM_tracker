@@ -1,0 +1,1 @@
+This GYM TRACKER is the perfect journal and fitness planner for you to record your bodybuilding, weightlifting, crossfit or workout progress. It's set up in a way where you can easily log all of your daily workouts exercises and also be able to quickly view your progress for several weeks at a time.
